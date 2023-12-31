@@ -1,2 +1,0 @@
-# Dream-Photography
-photo studio
